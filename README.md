@@ -1,1 +1,0 @@
-# Gottes-reichen-Segen
